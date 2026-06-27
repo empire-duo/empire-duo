@@ -4,7 +4,7 @@
 $\color{#e8d880}{"im-no-goddess-when-im-alone,"}$
 
 
-<p> click <a href="https://writteninparkour.straw.page/">here</a> 4 more info :)</p>
+<p> sign <a href="https://empire-duo.atabook.org/">atabook</a> !!!!!!! ₍₍⚞(˶>ᗜ<˶)⚟⁾⁾</p>
 
             
 <img width="98" height="55" alt="IMG_7123" src="https://files.catbox.moe/g5jh4p.webp" /> <img width="98" height="55" alt="IMG_7114" src="https://files.catbox.moe/nd4ekw.webp" /> <img width="98" height="55" alt="IMG_7117" src="https://files.catbox.moe/1e66s8.webp" />
