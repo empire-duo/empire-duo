@@ -3,7 +3,6 @@
 
 $\color{#a6aff7}{"im-no-goddess-when-im-alone,"}$
 
-<p> warning before u int: i really dislike talking in public, so id heavily appreciate either whispering or using party chat.</p>
 <p> sign <a href="https://empire-duo.atabook.org/">atabook</a> !!!!!!!</p>
 
             
