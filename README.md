@@ -1,8 +1,6 @@
 <img width="760" height="75" alt="sun" src="https://files.catbox.moe/5wojte.jpg" />
 <img width="1200" height="664" alt="sun" src="https://files.catbox.moe/ft3yua.gif" />
 
-$\color{#a6aff7}{"im-no-goddess-when-im-alone,"}$
-
 <p> sign <a href="https://empire-duo.atabook.org/">atabook</a> !!!!!!!</p>
 
             
