@@ -1,12 +1,12 @@
-<img width="245" height="41" alt="70b177cf_original" src="https://github.com/user-attachments/assets/a81e835e-7822-415a-accd-25340bf9ec8e" />
-<img width="1200" height="664" alt="sun" src="https://files.catbox.moe/jcgfiv.gif" />
+<img width="760" height="75" alt="sun" src="https://files.catbox.moe/5wojte.jpg" />
+<img width="1200" height="664" alt="sun" src="https://files.catbox.moe/ft3yua.gif" />
 
-$\color{#e8d880}{"im-no-goddess-when-im-alone,"}$
+$\color{#a6aff7}{"im-no-goddess-when-im-alone,"}$
 
-
+bxk2vg3
 <p> warning before u int: i really dislike talking in public, so id heavily appreciate either whispering or using party chat.</p>
-<p> sign <a href="https://empire-duo.atabook.org/">atabook</a> !!!!!!! ₍₍⚞(˶>ᗜ<˶)⚟⁾⁾</p>
+<p> sign <a href="https://empire-duo.atabook.org/">atabook</a> !!!!!!!</p>
 
             
-<img width="98" height="55" alt="IMG_7123" src="https://files.catbox.moe/g5jh4p.webp" /> <img width="98" height="55" alt="IMG_7114" src="https://files.catbox.moe/nd4ekw.webp" /> <img width="98" height="55" alt="IMG_7117" src="https://files.catbox.moe/1e66s8.webp" />
 
+<a href="https://github.com/ScarsCahoots"><img width="135" height="22" alt="IMG_7123" src="https://files.catbox.moe/gp4w8b.webp" /></a> <a href="https://github.com/Cindercrestsglory"><img width="75" height="22" alt="IMG_7123" src="https://files.catbox.moe/i06epj.webp" /></a> <a href="https://github.com/slumbering-star"><img width="75" height="22" alt="IMG_7123" src="https://files.catbox.moe/rdvw62.webp" /></a><a href="https://github.com/bxk2vg3"><img width="75" height="22" alt="IMG_7123" src="https://files.catbox.moe/kgo6g0.webp" /> 
